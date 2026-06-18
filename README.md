@@ -14,3 +14,4 @@ build on base!
 trade on baseapp!
 BASE Explorer added a new hidden feature!
 Now you can check your base wallet Reputation Score directly on BaseScan!
+trade on elsa!
