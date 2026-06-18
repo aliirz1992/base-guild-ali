@@ -9,3 +9,4 @@ Which AI on Base have your support?I perfer ELSA!
 Base explorer just added cards (basescan)!
 No signals No noise Just consistent onchain activity
 on $Base!
+Ignore the noise,Focus on building your future on Base!
