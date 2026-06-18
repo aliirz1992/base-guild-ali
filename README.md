@@ -6,3 +6,4 @@ BASE IS UNSTOPPABLE!
 Base App bf, Base App gf!
 Check your wallet now: https://basescan.org!
 Which AI on Base have your support?I perfer ELSA!
+Base explorer just added cards (basescan)!
