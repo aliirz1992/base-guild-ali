@@ -13,3 +13,4 @@ Ignore the noise,Focus on building your future on Base!
 build on base!
 trade on baseapp!
 BASE Explorer added a new hidden feature!
+Now you can check your base wallet Reputation Score directly on BaseScan!
