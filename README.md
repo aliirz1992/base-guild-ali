@@ -4,3 +4,4 @@ base is everything!
 base app is my favorite daily app to do some trade!
 BASE IS UNSTOPPABLE!
 Base App bf, Base App gf!
+Check your wallet now: https://basescan.org!
