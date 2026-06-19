@@ -19,3 +19,4 @@ swap and bridge on base in elsa!
 https://base.app/app/https://predixi-base.vercel.app go to this and predict on base(baseapp)!
 active on base on AerodromeFi and Uniswap!
 explore the base eccosystem and active!
+swap and bridge with codes in heyelsaAI!
