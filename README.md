@@ -21,3 +21,4 @@ active on base on AerodromeFi and Uniswap!
 explore the base eccosystem and active!
 swap and bridge with codes in heyelsaAI!
 you can find elsa in base app easily!
+BASE is silently building something!
